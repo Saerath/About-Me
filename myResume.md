@@ -1,5 +1,3 @@
-![pict](https://sun9-56.userapi.com/impf/OWl9Lh-bmLDhwyjagLwFyS7Dc-SibkAF_I4sJw/NziUI3dqyaU.jpg?size=1425x2160&quality=95&sign=922fbc8ebde75e460c5e130f9f97973d&type=album)
-
 **ФИО:** Матушкин Сергей Валерьевич
 
 **Дата рождения:** 28.06.1994
